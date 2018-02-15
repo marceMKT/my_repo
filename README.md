@@ -1,0 +1,1 @@
+Primer fichero en el primer repositorio de Marcelino López Pastrana
